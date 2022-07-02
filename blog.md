@@ -2,6 +2,8 @@
 
 ## About Me
 
+A Caiji, who is always curious about the universe.
+
 ## The Premise
 
 ## Tools used
